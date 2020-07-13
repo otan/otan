@@ -1,3 +1,3 @@
 <p align="center">
-  <img src="https://frinkiac.com/video/S13E10/Dn_nzm_dgw0qUe_sJ9l3TWpT2jE=.gif" alt="Arty Ziff"/>
+  <img src="https://frinkiac.com/video/S07E07/meU67jeClcGDW38Od6oAzMXQuj0=.gif" alt="Y Y Y"/>
 </p>

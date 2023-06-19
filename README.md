@@ -4,6 +4,3 @@
 <p align="center">
   Y Y Y
 </p>
-<p align="center">
-  in this house, we OBEY they laws of thermodynamics!
-</p>
